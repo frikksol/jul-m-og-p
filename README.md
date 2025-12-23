@@ -72,6 +72,7 @@ Ulike alternativer:
 - Gå tur opp offersøykammen
 - Kjør innom huset til Parsa og Lisa på veien til Hauklandstranden. Gå langs havet og rundt odden ut til Uttakleiv og tilbake. Evt kjør gjennom tunnelen til Uttakleiv i stedet
 - Kjør ut til Brenna og gå Vassula. Bratt men god sti. Lite turister
+- En runde på spa på Skårungen?
 -
 - Middag? Æ elska pizza i Kabelvåg f.eks.? Eller bare på Skårungen?
 
