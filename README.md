@@ -1,6 +1,6 @@
 # Julegave til Mamma og Pappa 2025
 
-## Dette er gaven
+## 🎁 Dette er gaven
 
 - Avreise til Evenes Torsdag 21. Mai kl 08:40
 - Hente Leiebil (Denne må dere bestilles selv)
@@ -8,7 +8,7 @@
 - Resterende netter på Skårungen
 - Return fra Evenes Søndag 24. Mai 20:55
 
-## Pakkeliste
+## ✅ Pakkeliste
 
 - Turtøy: sko, klær etter vær, liten tursekk
 - Badetøy og flipflops (?)
@@ -23,7 +23,7 @@
 
 - HUSK: Booke leiebil i god tid
 
-## Detaljerte forslag til aktiviteter
+## 🔍 Detaljerte forslag til aktiviteter
 
 Dette er en liste med forslag til aktiviteter og tidsplan. Dere står fritt til å gjøre some dere vil. Den er dog nøye kurert av Maia, Nico og Parsa for å gi dere en best mulig opplevelse.
 
