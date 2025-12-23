@@ -1,11 +1,11 @@
 # Julegave til Mamma og Pappa 2025
 
 ## Dette er gaven
-- Avreise til Evenes Torsdag [Dato og tid]
+- Avreise til Evenes Torsdag 21. Mai kl 08:40
 - Hente Leiebil (Denne må dere bestilles self)
 - Natt til fredag på Trevarefabrikken i Henningsvær, med middag.
 - Resterende netter på Skårungen
-- Return fra Evenes Søndag [Dato og tid]
+- Return fra Evenes Søndag 24. Mai 20:55
 
 ## Pakkeliste
 - [ ] Turtøy: sko, klær etter vær, liten tursekk
@@ -23,6 +23,7 @@
 
 ## Detaljerte forslag til aktiviteter
 Dette er en liste med forslag til aktiviteter og tidsplan. Dere står fritt til å gjøre some dere vil. Den er dog nøye kurert av Maia, Nico og Parsa for å gi dere en best mulig opplevelse.
+
 Torsdag: Reisedag
 -  8-10: Fly
 -  10-11: Bagasje, hente leiebil
@@ -72,7 +73,7 @@ Søndag: Hjemreise
 -  Frokost
 -  Pakke
 -  Kjøre
--  Ta turen via Laukvik på veien, l
+-  Ta turen via Laukvik på veien?
 -  Kaffe og bolle på brygga der
 -  Evt ta dere tid til å gå første del av turen opp til Matmora - altså opp til Delpsheia.
 -  Husk god nok tid til kjøreturen tilbake til Evenes og levering av leiebil før flyturen hjem
