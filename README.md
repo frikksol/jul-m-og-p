@@ -4,7 +4,7 @@
 
 - Avreise til Evenes Torsdag 21. Mai kl 08:40
 - Hente Leiebil (Denne må dere bestilles selv)
-- Natt til fredag på Trevarefabrikken i Henningsvær, med middag.
+- Natt til fredag på Trevarefabrikken i Henningsvær
 - Resterende netter på Skårungen
 - Return fra Evenes Søndag 24. Mai 20:55
 
